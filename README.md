@@ -1,0 +1,1 @@
+# obozn-menie-sa-s-grafick-mi-n-strojmi
